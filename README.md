@@ -3,8 +3,5 @@ Bem Vindo ao meu pefil 💙⭐💙
 
 **eduardalf2007/eduardalf2007** 
 
-Here are some ideas to get you started:
-
-- 🌱 I’m currently learning ....
-- 😄 Pronouns: ...
-
+[
+](https://media.tenor.com/_4kl3WUiiQUAAAAi/peach-cat.gif)https://media.tenor.com/_4kl3WUiiQUAAAAi/peach-cat.gif
